@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 👯 sou muito carinhosa
 - 🤔 sou dedicada
 - 💬 sou uma boa amiga
--->
+
 ![](https://media.tenor.com/SXwIb31R5qUAAAAC/goodnight.gif)
